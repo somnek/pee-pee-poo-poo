@@ -1,5 +1,5 @@
 ## p p poo poo check 💩
-<img style="display:block; margin-left:auto; width:30px" src="https://raw.githubusercontent.com/somnek/pee-pee-poo-poo/41ad1843e86885b73110676f841c68d18161d5e5/src/ezgif-1-3e21ae1fa3.gif"/>
+<img src="https://raw.githubusercontent.com/somnek/pee-pee-poo-poo/41ad1843e86885b73110676f841c68d18161d5e5/src/ezgif-1-3e21ae1fa3.gif"/>
 
 
 After an animal has digested eaten material, the remains of that material are discharged from its body as waste. Although it is lower in energy than the food from which it is derived, feces may retain a large amount of energy, often 50% of that of the original food.This means that of all food eaten, a significant amount of energy remains for the decomposers of ecosystems. Many organisms feed on feces, from bacteria to fungi to insects such as dung beetles, who can sense odors from long distances. Some may specialize in feces, while others may eat other foods. Feces serves not only as a basic food, but also as a supplement to the usual diet of some animals. This process is known as coprophagia, and occurs in various animal species such as young elephants eating the feces of their mothers to gain essential gut flora, or by other animals such as dogs, rabbits, and monkeys.
